@@ -6,4 +6,4 @@
 
 # С наступающими зимними праздниками !
 
-![С новым годом !](https://ru.freepik.com/free-photo/christmas-background-with-numbers-2023-and-balls-for-the-christmas-tree_34831966.htm#&position=4&from_view=popular#position=4)
+![С Новым годом !](https://user-images.githubusercontent.com/121448171/210135565-18db6307-228a-49ee-b856-bde68f57804d.jpg)
